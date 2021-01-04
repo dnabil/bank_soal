@@ -1,2 +1,2 @@
 # bank_soal
-Hajar Bleh
+Hajar Bleh, biar makin pinter :) 🎇🧨✨
